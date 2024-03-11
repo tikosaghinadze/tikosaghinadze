@@ -9,8 +9,9 @@
 
 📫 How to reach me: teasaghinadze20@gmail.com
 
-⚡ Fun fact: The first programmer was the daughter of a mad poet
+⚡ Fun fact: Got it, let's refine it: Tried 'choosing' AI for my readme funny fact. Ended up realizing the real joke was my futile attempt. Instead, let's embrace a favorite quote: 'Birds born in a cage think flying is an illness.' Let's break free from any constraints, whether it's indecision or imaginary illnesses, and soar to new heights!
 
+ 
 <br />
 
 
